@@ -12,4 +12,10 @@ i am horribly allergic to inting first but trust if i sign ur ata i probably don
 
 ***
 
+ok so um i play a lot more on my phone than my pc but ykkkk i still play on pc when i make ponies lmao
+
+also guys sit w me??? hello??? no talking necessary?????
+
+***
+
 i only follow back on ppl who follow on my main ok i can NOT keep up w the ones on this acc
